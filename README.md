@@ -10,7 +10,7 @@ Meu nome é ** Maria Eduarda **
 
   0000113025186xsp@al.educacao.sp.gov.br
 
-  @maria_trindad.12
+  @trindad2_
 
 ![](https://media1.tenor.com/m/cjfRZCzZvzQAAAAd/disney-beauty-and-the-beast.gif)
   
