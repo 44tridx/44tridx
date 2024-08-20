@@ -13,4 +13,3 @@ Meu nome é **Maria Eduarda**
   @trindad2_
 
 ![](https://media1.tenor.com/m/cjfRZCzZvzQAAAAd/disney-beauty-and-the-beast.gif)
-  
